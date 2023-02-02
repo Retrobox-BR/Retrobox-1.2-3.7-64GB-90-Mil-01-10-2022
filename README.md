@@ -1,2 +1,2 @@
-# Retrobox 1.2 [3.7][64GB][90 Mil] 01/10/2022
-Retrobox 1.2 [3.7][64GB][90 Mil] 01/10/2022
+# Retrobox 1.2 [3.7][32GB][50 Mil]
+Retrobox 1.2 [3.7][32GB][50 Mil]
